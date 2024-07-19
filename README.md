@@ -31,3 +31,5 @@ The gene of the cosmos, the code of the soul
 Logic and spirit, the vertical limit
 
 A quantum, a secret, the fall of the gods
+
+- Luca Turilli's Rhapsody
